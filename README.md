@@ -1,2 +1,0 @@
-# maktab24
-#salam
